@@ -1,1 +1,1 @@
-[Image of Yaktocat](https://camo.githubusercontent.com/5215e6fe0e2fc740eb8d91fe380287294fcacca5/68747470733a2f2f6f63746f6465782e6769746875622e636f6d2f696d616765732f79616b746f6361742e706e67)
+[Image of Anime cat](https://i.pinimg.com/474x/0e/40/d3/0e40d36b45ec6f43eb524ca31d66d7f6--chi-chi-chis-sweet-home-anime.jpg)
